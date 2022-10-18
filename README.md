@@ -1,1 +1,1 @@
-Mussie Goshime UX desig portfolio
+Mussie Goshime UX design portfolio
